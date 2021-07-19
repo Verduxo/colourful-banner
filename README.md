@@ -12,4 +12,6 @@
 
 hope u like it, from !HOTW with love
 
+![Screenshot from 2021-07-19 13-49-48](https://user-images.githubusercontent.com/87647482/126155757-c2f9677f-3f00-4d3c-992e-66e3939297ba.png)
+
 ![WhatsApp Image 2021-07-12 at 14 36 59](https://user-images.githubusercontent.com/87647482/126154336-edd7dbed-8450-4c23-ac2e-a8e4cd052821.jpeg)
